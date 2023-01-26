@@ -1,1 +1,1 @@
-Experimentation on minS
+Experimentation on SWGG
